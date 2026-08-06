@@ -16,13 +16,11 @@
 
 
 
-이메일 : sksksksk@nnn.com
+이메일 : sksksksk@nnn.comm
 
 
 
 목표
 
 1박 2일 안에 Git 마스터하고 팀 프로젝트 완벽 협업하기 !
-
-
 
