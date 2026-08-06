@@ -16,7 +16,9 @@
 
 
 
-이메일 : fksfksfn3758@naver.com
+이메일 : sksksksk@nnn.comm
+
+전화번호 : 0000-0000-0000
 
 
 
